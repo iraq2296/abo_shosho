@@ -1,1 +1,0 @@
-# abo_shosho
